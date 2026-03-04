@@ -61,4 +61,4 @@ LinkedIn
 www.linkedin.com/in/giovannypanesso
 
 Email  
-giovannypanesso@email.com
+giovannypanesso@gmail.com
